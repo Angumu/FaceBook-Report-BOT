@@ -11,3 +11,7 @@ This is a mass report bot from many users worldwide, Bot can report a User/Page/
 - Under the videos you will see my contact.
 <hr>
 <img src="https://i.postimg.cc/0yRkpYFw/fbsurp.jpg" alt="Trulli" width="400" height="400">
+<p>
+
+<hr>
+Tags: FaceBook report bot, FaceBook report tool, FaceBook reporter, FaceBook account report, FaceBook mass report, FaceBook account ban, FaceBook profile banned, FaceBook profile report, FaceBook report hack, FaceBook mass report bot, Facebook page report bot, Facebook page banned bot, Facebook page ban tool, FaceBook acc report bot
